@@ -7,6 +7,17 @@ I’m especially interested in Web3, as I like the premise of decentralized tech
 
 I would like to expand my knowledge through personal projects focused on simplifying current processes by applying blockchain traceability, which nowadays are often difficult to access or delayed by bureaucracy.
 
-Regards!                                                                                                                                                                                                                                        
+Regards!    
+
+
+=  =====  ===============================       ====================
+=   ===   ===============================  ====  ===================
+=  =   =  ========  =====================  ====  ===================
+=  == ==  ==   ==    =  ==   ===   ======  ====  ==   ===   ===   ==
+=  =====  =  =  ==  =====  =  =  =  =====       ==  =  =  =  =     =
+=  =====  ====  ==  ==  ====  ==  =======  ==========  =  ====  =  =
+=  =====  ==    ==  ==  ==    ===  ======  ========    =  ====  =  =
+=  =====  =  =  ==  ==  =  =  =  =  =====  =======  =  =  =  =  =  =
+=  =====  ==    ==   =  ==    ==   ======  ========    ==   ===   ==
 
                                                                                 
